@@ -1,2 +1,2 @@
-# ruthgebremedhin.github.io
-My personal website: https://ruthgebremedhin.github.io/
+# cheanampong.github.io
+My personal website: https://cheanampong.github.io/
